@@ -6,5 +6,5 @@
 ## Contact
 * Email: maciejiwan01@outlook.com
 * LinkedIn: https://www.linkedin.com/in/maciejiwan/
-* Website: [Maciej Iwan https://maciejiwan.pl/](https://maciejiwan.pl/)
+* Website: [https://maciejiwan.pl/](https://maciejiwan.pl/) [Maciej Iwan](https://maciejiwan.pl/)
 
